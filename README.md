@@ -1,2 +1,2 @@
 # weby_projekt_ctvrtak
-Lukáš Kupec, Vojtěch hmm hmm Trávníček, Šimon nerd Vystrčil
+Lukáš Chudák noob idiot Kupec, Vojtěch hmm hmm Trávníček, Šimon nerd Vystrčil
